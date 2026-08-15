@@ -1,0 +1,1 @@
+# TI_452024611011_ArsitekturViewMode
